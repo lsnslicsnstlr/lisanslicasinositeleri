@@ -1,4 +1,4 @@
-# <a href="https://heylink.me/denemebonusu2025/">Lisanslı Casino Siteleri Giriş İçin Tıklayınız ✅</a>
+# <a href="https://heylink.me/denemebonusu2025/">Lisanslı Casino Siteleri Giriş İçin Tıklayın ✅</a>
 Lisanslı casino siteleriyle güvenilir bir oyun deneyimi yaşayın. En avantajlı bonuslarla kazanmaya başlayın!
 
 <a href="https://heylink.me/denemebonusu2025/" title="Lisanslı Casino Siteleri">
